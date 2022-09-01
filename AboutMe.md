@@ -1,0 +1,1 @@
+My name is Oluwasogo Enoch Awofeso. I was born in Ivory Coast, and moved to the United States 5 years go to pursue higher education. Currently, I am a Junior, majoring in Bachelors of Science at the State University at Albany. I am pretty involved on campus, with being a Resident Assistant, a member of the IEEE and the Men Club Soccer. 
